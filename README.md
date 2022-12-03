@@ -1,1 +1,2 @@
 # omlabs.org
+We are more than just building laboratories where you can do your best work, we're devoted to caring for people and the environment. We are a team of scientists, engineers, architects, and technicians who know what it takes to plan, design, build, and operate a laboratory. We ensure that the facilities meet the needs of the laboratory's functions. We work with you every step of the way to ensure that your laboratory meets your needs and budget.
